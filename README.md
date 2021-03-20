@@ -1,1 +1,1 @@
-# Son-topish-o-yni
+# Son-topish-o'yini
